@@ -118,10 +118,10 @@ Don't stress if you're not asleep instantly. Trying too hard creates anxiety tha
 
 ## ❌ Avoid These Sleep Killers
 
-• **Clock-watching** - Adds 15 minutes to sleep onset
-• **Switching techniques too fast** - Give each 5+ minutes
-• **Tensing muscles 100%** - Increases arousal
-• **Forcing sleep** - Creates performance pressure
+• **Clock-watching**  Adds 15 minutes to sleep onset
+• **Switching techniques too fast**  Give each 5+ minutes
+• **Tensing muscles 100%**  Increases arousal
+• **Forcing sleep**  Creates performance pressure
 
 ---
 
